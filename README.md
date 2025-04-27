@@ -10,4 +10,4 @@ Me chamo Pedro, e vou me apresentar para vocês!!
 
 🎮 Gosto de jogos
 
-🫀 A coisa mais importante para mim é a família
+🫀 A coisa mais importante para mim é família
